@@ -1,2 +1,2 @@
 # duAnDauTay
-không nhuư là mơ
+không như là mơ
